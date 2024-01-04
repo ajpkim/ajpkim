@@ -1,0 +1,1 @@
+Hello, I'm Alex or ajpkim. I'm interested in how technology can empower individuals instead of exploit them. Beyond technology, I'm interested in the philosophical foundations of cognitive science, evolution, and consciousness - computation ftw.
